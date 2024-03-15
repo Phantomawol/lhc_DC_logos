@@ -1,4 +1,4 @@
-# DefCon
+# DefCon/LHC Logos
 
 Defcon Logo 29 was done by Hjeyji. @hjeyji on Twitter
 
